@@ -1,0 +1,2 @@
+# Unknown-Traffic---The-Emergence-of-Identity-Incentives-in-Machine-Participation-Governance
+Machine Consumption Governance: Governing Admissibility Rather Than Capability established participation as the primary governance unit. Virtual DMV Bot Regeneration extended this framework by supplying a practical identity layer through verifiable machine-participation plates. Why would machine consumers voluntarily participate in such systems?
